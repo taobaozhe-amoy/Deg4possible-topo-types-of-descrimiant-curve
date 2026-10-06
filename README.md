@@ -1,0 +1,1 @@
+# Deg4possible-topo-types-of-descrimiant-curve
